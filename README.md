@@ -1,1 +1,0 @@
-# mdlixsyzat.github.io
